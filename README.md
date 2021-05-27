@@ -2,7 +2,7 @@
 
 ![Image](faythbutler1.jpg)
 
-It is believed that hyperbolized reality happens only to filmmakers and photoshop masters. However, there are moments in life where they would be powerless. And in our review of 17 stunning images that show the beauty and irreality of our world without any photoshop.
+It is believed that hyperbolized reality happens only to filmmakers and photoshop masters. However, there are moments in life where they would be powerless. And in our review of  stunning images that show the beauty and irreality of our world without any photoshop.
 
 1. Goldfish
 
@@ -22,7 +22,7 @@ Railroad tracks in New Zealand damaged by an earthquake.
 
 The remains of a pole that did not burn during a fire in the Volgograd region.
 
-4. exotic animal
+4. Exotic animal
 
 ![Image](faythbutler5.jpg)
 
@@ -39,7 +39,7 @@ Many of the most expensive and rare documents are kept in the U.S. National Arch
 
 The thefts from the National Archives became so common that a special team was formed to search for the missing artifacts. They managed to recover photographs taken by the astronauts during the moon landing and audio tapes of the Hindenburg disaster.
 
-2. tanto Kunimitsu
+2. Tanto Kunimitsu
 
 Stealing items that are national treasures has become a problem not only in the United States. According to the Cultural Affairs Agency in Japan, 109 priceless artifacts have gone missing from the Agency as well as from private collectors in the country. The list of missing treasures includes 52 swords, 17 sculptures and 10 paintings. The report says they were either stolen or changed owners, who are currently unknown. A 13th century tanto sword called "Kunimitsu" is also among the missing. Its previous owner died and the agency has not been notified as to who got the sword.
 
